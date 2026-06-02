@@ -12,6 +12,8 @@ It's always the same story...  "You need an engineering degree."  Arcadis interv
 
 Meanwhile, kids graduate from the SAME EXACT PROGRAM that I graduated from at RIT and waltz right into Microsoft, Intel, aerospace manufacturers, pharmaceutical manufacturers, energy companies and shoot immediately right to the top.  They become "Global Managers of EHS" in a couple years!
 
+You people STARVE ME to the brink!  I have no choice but to take the jobs that I'm offered!  And it's usually filthy, crappy field work where I'm sitting in a trailer using a portajohn or sitting in a truck maintenance shop with Hex-Chrome and Silica dust all over my desk, and union guys trying to sell me all sorts of crap RIGHT ON THE CLOCK!  I don't WANT those jobs, but that's all you people give me!  AND THEN THEY LAY ME OFF WHEN MY ENTIRE LIFE REVOLVES AROUND THEIR FILTHY SITE!
+
 I literally have absolutely no idea what to do.  I pass federal security clearance background checks, I maintain absolute sobriety and pass drug screens, I put all of my effort into every position I get, and my career still looks like trash.
 
 I don't know what I'm doing wrong compared to all of these other kids that shoot straight to the moon.  I DON'T KNOW WHAT'S WRONG.  I have absolutely no idea!
