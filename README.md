@@ -14,11 +14,13 @@ Meanwhile, kids graduate from the SAME EXACT PROGRAM that I graduated from at RI
 
 You people STARVE ME to the brink!  I have no choice but to take the jobs that I'm offered!  And it's usually filthy, crappy field work where I'm sitting in a trailer using a portajohn or sitting in a truck maintenance shop with Hex-Chrome and Silica dust all over my desk, and union guys trying to sell me all sorts of crap RIGHT ON THE CLOCK!  I don't WANT those jobs, but that's all you people give me!  AND THEN THEY LAY ME OFF WHEN MY ENTIRE LIFE REVOLVES AROUND THEIR FILTHY SITE!
 
+I have union guys and Walmart kids and probably my parents stalking me around and trying to get me fired, tear me back down into the muck, and destroy me constantly!
+
 I literally have absolutely no idea what to do.  I pass federal security clearance background checks, I maintain absolute sobriety and pass drug screens, I put all of my effort into every position I get, and my career still looks like trash.
 
 I don't know what I'm doing wrong compared to all of these other kids that shoot straight to the moon.  I DON'T KNOW WHAT'S WRONG.  I have absolutely no idea!
 
-If I could afford to go back to college for another 3 years and get an engineering degree and somehow keep paying all of my bills, I would do that.  But as you can see, my life has literally been destroyed.  I am still paying $1600/month in student loan payments, I have FOUR periods of extended unemployment on my resume...  I'm trying.
+If I could afford to go back to college for another 3 years and get an engineering degree and somehow keep paying all of my bills, I would do that.  But as you can see, my life has literally been destroyed.  I am still paying $1600/month in student loan payments, I have FOUR periods of extended unemployment on my resume...  I'm trying!
 
 I'm applying to jobs EVERY SINGLE DAY, I'm upskilling, I apply to everything that random people call me about or message me about on Linkedin...
 
