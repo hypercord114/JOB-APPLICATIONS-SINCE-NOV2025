@@ -14,7 +14,7 @@ Meanwhile, kids graduate from the SAME EXACT PROGRAM that I graduated from at RI
 
 I literally have absolutely no idea what to do.  I pass federal security clearance background checks, I maintain absolute sobriety and pass drug screens, I put all of my effort into every position I get, and my career still looks like trash.
 
-I don't know what I'm doing wrong compared to all of these other kids that shoot straight to the moon.  I don't knnow.  I have absolutely no idea.
+I don't know what I'm doing wrong compared to all of these other kids that shoot straight to the moon.  I DON'T KNOW WHAT'S WRONG.  I have absolutely no idea!
 
 If I could afford to go back to college for another 3 years and get an engineering degree and somehow keep paying all of my bills, I would do that.  But as you can see, my life has literally been destroyed.  I am still paying $1600/month in student loan payments, I have FOUR periods of extended unemployment on my resume...  I'm trying.
 
