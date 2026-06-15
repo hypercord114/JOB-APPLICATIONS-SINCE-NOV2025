@@ -2,7 +2,7 @@ JUST SO YOU KNOW
 
 It's so, so frustrating to me when recruiters say to me "So you have gaps on your resume, what have you been doing?".  I have been absolutely diligent and applying to jobs every single day.
 
-This is the most current record from the NYS DOL website that includes all of the job applications I've submitted and interviews I've attended.  As of 2026-06-02, there are well over SEVEN HUNDRED (700+) activities in this file.
+This is the most current record from the NYS DOL website that includes all of the job applications I've submitted and interviews I've attended.  As of 2026-06-15, there are over EIGHT HUNDRED (800+) activities in this file.
 
 I keep very close track of all of my application activity.  Part of the reason I have a gap on my resume is because NO ONE HIRES ME.  No one hires me when I legitimately have 8 years of college that I took on $180k+ in student loans for, two degrees, I studied abroad in Japan, I've been working since I was 11 years old, I held three part time jobs all throughout college, and I've been working TWO jobs the entire time I've been out of college.
 
