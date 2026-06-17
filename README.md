@@ -31,8 +31,3 @@ Why don't you HELP ME get an engineering degree or an MBA or something.  I can't
 Think about me for a second!  I wanted to graduate, get a good job, and take a trip to see my friends in Tokyo and Osaka!  I've been writing to my friends in Japan since 2005 about how I'm going to come visit them and I _STILL_...  OVER TWENTY YEARS LATER haven't been able to do that.  I have literallly done nothing with my life since 2005 except work multiple jobs and put all of my effort into trying to succeed so I can take a frickin trip to Japan.
 
 But I don't have an engineering degree, so I deserve poverty and depression and misery...  Yeah...  What about all those other kids that graduated from RIT in like, 2021 and are already "Global Managers of EHS".  Explain that to me.
-
-
-Anyway...  Look - I'm applying to jobs every day.  I've applied to over 700 jobs since November 2025.
-
-I'll keep updating this file for you so you know.
